@@ -1,0 +1,2 @@
+čast práci soudruzi!!!
+
